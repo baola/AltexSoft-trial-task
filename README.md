@@ -1,0 +1,1 @@
+# AltexSoft-trial-task
